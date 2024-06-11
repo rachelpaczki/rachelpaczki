@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello! 👋 Nice to meet you
 
 🔭 I'm currently looking for work in the international relations field in Chicago.
 
